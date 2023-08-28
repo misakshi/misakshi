@@ -1,4 +1,4 @@
-### Hi there yoa are visiting Sakshi profile👋
+### Hi there you are visiting Sakshi profile👋
 
 <!--
 **misakshi/misakshi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
